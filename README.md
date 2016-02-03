@@ -9,3 +9,4 @@ gfd
 sg
 
 dgbgg
+co sie dzeije , co sie dzieje, elektryczny nie trzezwieje
